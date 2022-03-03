@@ -13,5 +13,7 @@ Bonnie: https://github.com/Bonnie-Thebunbuns09/Bonnie09-Voicebanks
 
 xzh3r: https://github.com/xzh3r/xzh3r-utau
 
+Pap7ru5: https://github.com/Pap7ru5/Pap7ru5-Voicebanks
+
 so credit to them!!
 
