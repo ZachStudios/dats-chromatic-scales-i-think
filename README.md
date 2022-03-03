@@ -9,6 +9,9 @@ Blantados: https://github.com/Blantados/blantados-funkin-utau-main
 
 Adriozer: https://drive.google.com/drive/u/0/folders/1KveVKjY45BbURPN_jyaVT8dtiMQr8L-O
 
+Bonnie: https://github.com/Bonnie-Thebunbuns09/Bonnie09-Voicebanks
 
-so credit to them!! :D
+xzh3r: https://github.com/xzh3r/xzh3r-utau
+
+so credit to them!!
 
